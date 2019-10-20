@@ -12,6 +12,7 @@ tags:
   - invasion
   - trashes
   - interest
+  - Bashar al-assad
 ---
 ## Donald Trump triggers a Turkish invasion and trashes the national interest
   - ドナルド・トランプ
@@ -19,7 +20,7 @@ tags:
   - トルコの侵略
   - 国益を破壊する
 
-+++ドナルド・トランプはトルコの侵略と国益の破壊を引き起こす+++
++++ドナルド・トランプはシリアへのトルコ軍による侵略と、国益の破壊を引き起こす+++
 
 と訳してみた。
 
