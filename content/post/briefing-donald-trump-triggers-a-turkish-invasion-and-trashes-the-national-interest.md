@@ -43,10 +43,37 @@ tags:
 
 
 ### regime
+リジーム
 政権
 
 ## makes hay
 干し草、好機を逃さない様にする
+
+## so do
+～もまた
+so do i => 私も
+me too と意味は同じだが、so do を使う方がフォーマルに近い
+me too はカジュアルな言葉なので仕事の取引先や目上の人にはあまり使わない。
+
+so do i   
+so do am   
+so di was   
+so do did    
+so do have    
+so do would   
+
+これは相手の使った動詞に合わせて返す。
+
+### 非定型の場合はsoに代わりにneitherを使う
+
+neither(ニーザー）
+
+neither do i   
+neither do am   
+neither do was   
+neither do did    
+neither do have    
+neither do would   
 
 
 
