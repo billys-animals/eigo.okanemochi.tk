@@ -13,6 +13,9 @@ tags:
   - trashes
   - interest
   - Bashar al-assad
+  - regime
+  - so do
+  - neither
 ---
 ## Donald Trump triggers a Turkish invasion and trashes the national interest
   - ドナルド・トランプ
