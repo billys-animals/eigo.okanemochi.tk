@@ -23,9 +23,9 @@ a singular attitude => 風変わりな態度
 pluarl vocation => 兼任、兼職   
 
 ##### 複数系の特殊な例
-mouse =>  mice
-tooth =>  teeth
-leaf =>   leaves
+mouse =>  mice  
+tooth =>  teeth  
+leaf =>   leaves  
 
 
 
