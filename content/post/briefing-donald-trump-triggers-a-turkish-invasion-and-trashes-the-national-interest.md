@@ -60,7 +60,7 @@ me too はカジュアルな言葉なので仕事の取引先や目上の人に�
 
 so do i   
 so do am   
-so di was   
+so do was   
 so do did    
 so do have    
 so do would   
