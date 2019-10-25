@@ -5,6 +5,8 @@ categories:
   - school
 tags:
   - nazo nazo
+  - riddle
+  - though
 ---
 ## ridlle part1
 >>From Heaven I fall, though from earth I begin. No lady alive can show such a skin. I’ m bright as an angel, and light as a feather, But heavy and dark, when you squeeze me together.
