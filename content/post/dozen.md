@@ -20,4 +20,9 @@ tags:
 ##### 卵6個
 #### a dozen peple
 ##### 十数人
+#### some dozen peple
+##### 12人ほどの人たち
+#### It's six of one and harf a dozen of the other.
+##### どっちもどっちだ・悪いのはお互い様だ
+
 
