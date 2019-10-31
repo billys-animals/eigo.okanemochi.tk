@@ -13,7 +13,7 @@ tags:
 #### Twelve is a dozen.
 ##### 1ダースは12個
 #### If you need harf a dozen apples to make an apple pie, how many apples do you need?
-##### もしもあなたが半ダースのリンゴでアップルパイを作るならリングは何個必要ですか？
+##### もしもあなたが半ダースのリンゴでアップルパイを作るならリンゴは何個必要ですか？
 #### harf a dozen bottles
 ##### 6本の瓶
 #### a harf dozen eggs
