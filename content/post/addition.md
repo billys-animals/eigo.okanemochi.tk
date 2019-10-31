@@ -6,7 +6,8 @@ categories:
 tags:
   - addition
 ---
-## Addition 
+## Addition  
+アディション  
 ### 足し算の事
 #### 5 + 2 = 7
 ##### 5 plus 2 is 7 | 5 and 2 is 7 | 5 add 2 is 7 
