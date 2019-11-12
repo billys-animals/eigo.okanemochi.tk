@@ -6,6 +6,7 @@ categories:
 tags:
   - beneath
 ---
+ベニィース   
 ～の下に、～のもとに、～の隠れて
  
 （～の下と言う語法としては、under やbelowが普通に使われる）
