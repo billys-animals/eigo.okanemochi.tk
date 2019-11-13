@@ -23,7 +23,3 @@ There was a girl standing in front of me.  私の前に少女が立っていた�
 I have a busy afternoon in front of me. 　この昼は忙しい。
  
 
-#### ～のように、～に似た
- like
- 
-（動詞のlike=好きが前置詞としても使われます。）
