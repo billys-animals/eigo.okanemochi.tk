@@ -2,7 +2,7 @@
 title: episode 1
 date: 2019-12-01T00:43:04.601Z
 categories:
-  - 星合いの空
+  - 星合の空
 tags:
   - episode 1
 ---
