@@ -50,11 +50,11 @@ Fight,fight,fight,fight--
 Huh? What's going on?
 
 
-激弱男子部と劇強女子部の練習試合。
-The super awful boy's team is playing the super good girls team.
+激弱男子部と劇強女子部の練習試合。   
+The super awful boy's team is playing the super good girls team.   
 
 
-01:20
+01:20   
 
 
 
