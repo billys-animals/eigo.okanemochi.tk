@@ -39,6 +39,21 @@ It's better than before.　　
 Your son sure is energetic.　　
 Our last apartment didn't have an elevator.　　
 　　
+~~~~
+
+いけいけいけおせおせ司城！  
+おせおせおせ   
+G-o!Go,go,go,go,Shijo!   
+Fight,fight,fight,fight--   
+
+えっ＾－なにやってるの？
+Huh? What's going on?
+
+
+激弱男子部と劇強女子部の練習試合。
+The super awful boy's team is playing the super good girls team.
+
+
 
 
 ### energetic　　
