@@ -42,4 +42,7 @@ Our last apartment didn't have an elevator.　　
 
 
 ### energetic　　
-エネジャテイック　　
+エネジャテイック    　　
+元気
+
+　　
