@@ -123,7 +123,9 @@ Their intention is to not even try.
 ### bruised
 ブルースト
 傷ついた
-
+### intentions 
+インテンションズ   
+意図   
 
 
 　　
