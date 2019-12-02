@@ -35,7 +35,7 @@ I'm using the stairs.　　
 　
 
 マキ、大変だよ、階段でなんて。   
-Maki it's fonna be rough going by stairs.　　
+Maki it's gonna be rough going by stairs.　　
 　　
 
 何いってんの、前よりマシじゃん。   
@@ -71,6 +71,8 @@ No way.Thr soft tennis clubs?
 全国制覇の女子に勝てるわけないじゃん！   
 They don't stand a chance against the national champs.   
 
+弱小男子部がさぁ。   
+Not the worthless boys' team!   
 
 
 
