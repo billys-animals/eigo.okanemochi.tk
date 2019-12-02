@@ -126,6 +126,9 @@ Their intention is to not even try.
 ### intentions 
 インテンションズ   
 意図   
+### ashamed
+アシェイムド   
+恥ずかしい、照れ笑い
 
 
 　　
