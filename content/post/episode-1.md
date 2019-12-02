@@ -74,6 +74,8 @@ They don't stand a chance against the national champs.
 弱小男子部がさぁ。   
 Not the worthless boys' team!   
 
+うける   
+That's hilarious!   
 
 
 01:20   
@@ -83,5 +85,9 @@ Not the worthless boys' team!
 ### energetic　　
 エネジャテイック    　　
 元気
+### hilarious   
+ホリィアリアゥス   
+陽気な、滑稽な
+
 
 　　
