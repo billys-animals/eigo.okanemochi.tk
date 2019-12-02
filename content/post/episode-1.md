@@ -127,7 +127,7 @@ Their intention is to not even try.
 インテンションズ   
 意図   
 ### ashamed
-アシェイムド   
+ア、シェイムド   
 恥ずかしい、照れ笑い
 
 
