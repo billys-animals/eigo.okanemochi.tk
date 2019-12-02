@@ -108,6 +108,12 @@ It deserves a round of applause.
 いやぁ、悪気は無いと思いますよ。   
 Uh,I don't think their intentions are bad.   
 
+やる気もないみたいですけどね。   
+Their intention is to not even try.   
+
+2:52
+
+
 
 ### energetic　　
 エネジャテイック    　　
