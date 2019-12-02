@@ -7,7 +7,6 @@ tags:
   - episode 1
 ---
 ここのマンションならショコラちゃんは出ないよね。   
-　
 Looks like we won't get little chocolates at this place.　　
 
 
