@@ -64,6 +64,14 @@ Huh? What's going on?
    
 The super awful boy's team is playing the super good girls team.   
 
+うそ!ソフトテニス部が？   
+No way.Thr soft tennis clubs?   
+
+
+全国制覇の女子に勝てるわけないじゃん！   
+They don't stand a chance against the national champs.   
+
+
 
 
 01:20   
