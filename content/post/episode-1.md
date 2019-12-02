@@ -84,6 +84,29 @@ It's not hilarious.
 They'll totally get cryshed,bruised,and broken.   
 
 
+いやぁ、元気があっていいですね。  
+Well, It was a good effort at least.   
+
+あれ？   
+Huh   
+
+決められちゃった、、。   
+You scored on me good!   
+
+いや、あれ、照れ笑いですよ。照れ笑い。   
+Uh,No! He's ashamed,you see. Ashamed.   
+
+よいっしょ。   
+Here... goes!   
+
+ほんと凄いな。あんなの全然とれないし。   
+That was incredible.These's no way I can stop that.   
+
+マジすげぇ、拍手。   
+It deserves a round of applause.   
+
+いやぁ、悪気は無いと思いますよ。   
+Uh,I don't think their intentions are bad.   
 
 
 ### energetic　　
