@@ -77,8 +77,12 @@ Not the worthless boys' team!
 うける   
 That's hilarious!   
 
+うけねぇよ   
+It's not hilarious.   
 
-01:20   
+負けろ負けろ。ボッコボッコにされろ。    
+They'll totally get cryshed,bruised,and broken.   
+
 
 
 
@@ -88,6 +92,10 @@ That's hilarious!
 ### hilarious   
 ホリィアリアゥス   
 陽気な、滑稽な
+### bruised
+ブルースト
+傷ついた
+
 
 
 　　
