@@ -43,10 +43,10 @@ Oh well.　
 ### Your son sure is energetic.Our last apartment didn't have an elevator.　　
 
 息子さん、元気ですね。前のマンションはエレベーターなかったから。       
-
+#### energetic　　
+エネジャテイック    　　
+元気
 　　
-
-~~~~
 
 ### G-o!Go,go,go,go,Shijo!Fight,fight,fight,fight--   
 
@@ -74,12 +74,19 @@ Oh well.　
 
 ### That's hilarious!   
 うける   
+#### hilarious   
+ホリィアリアゥス   
+陽気な、滑稽な
 
 ### It's not hilarious.   
 うけねぇよ   
 
 ### They'll totally get cryshed,bruised,and broken.  
-負けろ負けろ。ボッコボッコにされろ。    
+負けろ負けろ。ボッコボッコにされろ。   
+#### bruised
+ブルースト
+傷ついた
+   
  
 
 ### Well, It was a good effort at least.   
@@ -92,7 +99,10 @@ Oh well.　
 決められちゃった、、。   
 
 ### Uh,No! He's ashamed,you see. Ashamed.   
-いや、あれ、照れ笑いですよ。照れ笑い。   
+いや、あれ、照れ笑いですよ。照れ笑い。  
+#### ashamed
+ア、シェイムド   
+恥ずかしい、照れ笑い 
 
 ### Here... goes!   
 よいっしょ。   
@@ -106,6 +116,9 @@ Oh well.　
 ### Uh,I don't think their intentions are bad.   
 
 いやぁ、悪気は無いと思いますよ。   
+#### intentions 
+インテンションズ   
+意図 
 
 ### Their intention is to not even try.  
 やる気もないみたいですけどね。   
@@ -115,21 +128,10 @@ Oh well.　
 
 
 
-### energetic　　
-エネジャテイック    　　
-元気
-### hilarious   
-ホリィアリアゥス   
-陽気な、滑稽な
-### bruised
-ブルースト
-傷ついた
-### intentions 
-インテンションズ   
-意図   
-### ashamed
-ア、シェイムド   
-恥ずかしい、照れ笑い
+
+
+
+
 
 
 　　
