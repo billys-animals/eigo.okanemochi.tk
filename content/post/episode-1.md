@@ -10,8 +10,7 @@ tags:
 ### Looks like we won't get little chocolates at this place.　　
 ここのマンションならショコラちゃんは出ないよね。  
 
-### Guess I can't earn pocet change then.   
-Oh well.　
+### Guess I can't earn pocet change then.Oh well.　
 小遣い稼ぎ出来ないのか、、、。　
 残念。　　
 
