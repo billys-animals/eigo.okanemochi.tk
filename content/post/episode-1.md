@@ -33,83 +33,83 @@ Oh well.　
 オレ、階段で行く。   
 　
 　
-
+### Maki it's gonna be rough going by stairs.
 マキ、大変だよ、階段でなんて。   
-Maki it's gonna be rough going by stairs.　　
 　　
+### What are you talking about?It's better than before.　　　　
 
 何いってんの、前よりマシじゃん。   
-What are you talking about?   
-It's better than before.　　
 
+### Your son sure is energetic.Our last apartment didn't have an elevator.　　
 
 息子さん、元気ですね。前のマンションはエレベーターなかったから。       
-Your son sure is energetic.   
-Our last apartment didn't have an elevator.　　
+
 　　
 
 ~~~~
 
+### G-o!Go,go,go,go,Shijo!Fight,fight,fight,fight--   
+
 いけいけいけおせおせ市城！ 
- 
 おせおせおせ   
-G-o!Go,go,go,go,Shijo!   
-Fight,fight,fight,fight--   
 
+### Huh? What's going on?
 えっ＾－なにやってるの？
-Huh? What's going on?
 
+### The super awful boy's team is playing the super good girls team. 
 
 激弱男子部と劇強女子部の練習試合。
    
-The super awful boy's team is playing the super good girls team.   
+### No way.The soft tennis clubs?   
+  
 
 うそ!ソフトテニス部が？   
-No way.The soft tennis clubs?   
 
+### They don't stand a chance against the national champs.   
 
 全国制覇の女子に勝てるわけないじゃん！   
-They don't stand a chance against the national champs.   
 
+### Not the worthless boys' team!   
 弱小男子部がさぁ。   
-Not the worthless boys' team!   
 
+### That's hilarious!   
 うける   
-That's hilarious!   
 
+### It's not hilarious.   
 うけねぇよ   
-It's not hilarious.   
 
+### They'll totally get cryshed,bruised,and broken.  
 負けろ負けろ。ボッコボッコにされろ。    
-They'll totally get cryshed,bruised,and broken.   
+ 
 
-
+### Well, It was a good effort at least.   
 いやぁ、元気があっていいですね。  
-Well, It was a good effort at least.   
 
+### Huh   
 あれ？   
-Huh   
 
+### You scored on me good!   
 決められちゃった、、。   
-You scored on me good!   
 
+### Uh,No! He's ashamed,you see. Ashamed.   
 いや、あれ、照れ笑いですよ。照れ笑い。   
-Uh,No! He's ashamed,you see. Ashamed.   
 
+### Here... goes!   
 よいっしょ。   
-Here... goes!   
 
+### That was incredible.These's no way I can stop that.   
 ほんと凄いな。あんなの全然とれないし。   
-That was incredible.These's no way I can stop that.   
 
+### It deserves a round of applause.   
 マジすげぇ、拍手。   
-It deserves a round of applause.   
+
+### Uh,I don't think their intentions are bad.   
 
 いやぁ、悪気は無いと思いますよ。   
-Uh,I don't think their intentions are bad.   
 
+### Their intention is to not even try.  
 やる気もないみたいですけどね。   
-Their intention is to not even try.   
+ 
 
 2:52
 
