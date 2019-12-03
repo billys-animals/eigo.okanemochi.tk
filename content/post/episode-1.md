@@ -6,31 +6,32 @@ categories:
 tags:
   - episode 1
 ---
-ここのマンションならショコラちゃんは出ないよね。   
-Looks like we won't get little chocolates at this place.　　
+ 
+### Looks like we won't get little chocolates at this place.　　
+ここのマンションならショコラちゃんは出ないよね。  
 
-
+### Guess I can't earn pocet change then.   
+Oh well.　
 小遣い稼ぎ出来ないのか、、、。　
 残念。　　
 
-Guess I can't earn pocet change then.   
-Oh well.　　
-
-
-エレベーターあるのよね。   
-We've even got an elevator.　　
-　　
-
-今度は8階か。   
-We're eighth floor this time.　
 　
 
+### We've even got an elevator.　
+エレベーターあるのよね。   
+　
+　　
+### We're eighth floor this time.　
+今度は8階か。   
+
+　
+### It's sure taking it's time...　
 なかなか来ないね。   
-It's sure taking it's time...　　
+　
 
-
+### I'm using the stairs.　
 オレ、階段で行く。   
-I'm using the stairs.　　
+　
 　
 
 マキ、大変だよ、階段でなんて。   
@@ -64,7 +65,7 @@ Huh? What's going on?
 The super awful boy's team is playing the super good girls team.   
 
 うそ!ソフトテニス部が？   
-No way.Thr soft tennis clubs?   
+No way.The soft tennis clubs?   
 
 
 全国制覇の女子に勝てるわけないじゃん！   
